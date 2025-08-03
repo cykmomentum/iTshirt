@@ -1,1 +1,1 @@
-좋아요 기능!new member
+좋아요 기능!new members
